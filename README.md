@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Dev-maker-stack<br>👀 I’m interested in ...<br>🌱 I’m currently learning ...<br>💞️ I’m looking to collaborate on ...<br>📫 How to reach me ...<br>😄 Pronouns: ...<br>⚡ Fun fact: ...
+👋 Hi, I’m @Dev-maker-stack<br>👀 I’m interested in Coding.<br>🌱 I’m currently learning Cybersecurity.<br>💞️ I’m looking to collaborate on Instagram.<br>📫 How to reach me . tiwari_devansh_001<br>😄<br>⚡ Fun fact: ...
 
 
 ## 🌐 Socials:
